@@ -1,0 +1,2 @@
+# I-NOW-OWN-THIS-COOL-DOMAIN-WAHHAHA
+i now own yu14.xyz
